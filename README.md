@@ -20,9 +20,8 @@ https://drive.google.com/file/d/1orP2hzZ7qqtb10HdGcU02IepyYkHAUoO/view?usp=shari
 
 Screenshot
 
-<img src="https://drive.google.com/file/d/1au6TwLSrDQ6ECF6r8u3snXnt1u7GcSgD/view?usp=sharing" width="250">
+![FB_IMG_1639045475397](https://user-images.githubusercontent.com/31959794/145381049-1feb56b9-a72a-4f1a-9de3-28d2871c46b2.jpg)
 
 
-<img src="https://drive.google.com/file/d/1axJ8N0ZpS1rmi1F8q_4TnfBG6knmER57/view?usp=sharing" width="250">
-
+![FB_IMG_1639045470860](https://user-images.githubusercontent.com/31959794/145381089-d5fa81a0-7be8-414b-bdf5-60e2079cc0d5.jpg)
 
